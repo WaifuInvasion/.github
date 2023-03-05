@@ -1,1 +1,2 @@
-![](https://miro.medium.com/v2/resize:fit:1400/1*wxNNMs_Gv3ktAaTLi3xV8Q.gif)
+We build weeb stuff.
+[](https://i.pinimg.com/originals/cd/fc/89/cdfc899c0a11250f8824d34721349677.gif)
